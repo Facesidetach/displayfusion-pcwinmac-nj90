@@ -1,4 +1,4 @@
-# 
+# Top DisplayFusion add-ons for Mac OS | Turbo DisplayFusion add-ons for PC Windows. Featuring junk file cleaning and quick preview — optimized for maximum performance on every platform.
 
 
 
